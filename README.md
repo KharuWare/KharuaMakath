@@ -5,4 +5,3 @@
 - You can contact me on discord if needed
   (Kharua#7550)
 - or send me a email
-  (h3xa@protonmail)
